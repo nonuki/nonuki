@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/ctt2ej.png)
+![](https://files.catbox.moe/4hmliz.png)
 
 <!--
 **nonuki/nonuki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
